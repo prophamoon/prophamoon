@@ -11,7 +11,7 @@ Here's my Discord status banner :3 :
 
 ![https://discord.com/users/431890896674619404](https://discord.c99.nl/widget/theme-3/431890896674619404.png)
 
-(You can find other forms of contacting me on my website)
+(You can find other ways of contacting me on my website)
 
 -----------
 asdkjasdkjsdjasdjkhsdjkhasdjkh sorry i'm weird lol.
