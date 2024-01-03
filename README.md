@@ -6,10 +6,6 @@
 - 💬 You can contact me on my Discord: [prophamoon#2883](https://discord.com/users/431890896674619404).
 (I sometimes take long to answer so sorry in regards if I don't answer you at the same time.)
 
-Here's my Discord status banner :3 :
-
-![https://discord.com/users/431890896674619404](https://discord.c99.nl/widget/theme-3/431890896674619404.png)
-
 (You can find other ways of contacting me on my website)
 
 -----------
